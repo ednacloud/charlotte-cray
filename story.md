@@ -34,15 +34,31 @@ He felt much better after this note was written and despatched. He came out of t
 
 So he dropped the subject of Miss Charlotte Cray, and took to admiring his wife’s complexion instead, so that the evening passed harmoniously, and both parties were satisfied. For two days Mr. Braggett received no answer from Miss Cray, which rather surprised him. He had quite expected that on the reception of his invitation she would rush down to his office and into his arms, behind the shelter of the ground-glass door that enclosed his chair of authority. For Miss Charlotte had been used on occasions to indulge in rapturous demonstrations of the sort, and the remembrance of Mrs. Braggett located in Violet Villa would have been no obstacle whatever to her. She believed she had a prior claim to Mr. Braggett. However, nothing of the kind happened, and the perjured publisher was becoming strongly imbued with the idea that he must go out to Hammersmith and see if he could not make his peace with her in person, particularly as he had several odd jobs for Christmas-tide, which no one could undertake so well as herself, when a letter with a black-edged border was put into his hand. He opened it mechanically, not knowing the writing; but its contents shocked him beyond measure.
 
-HONOURED SIR,—I am sorry to tell you that Miss Cray died at my house a week ago, and was buried
-yesterday. She spoke of you several times during her last illness, and if you would like to hear any further particulars, and will call on me at the old address, I shall be most happy to furnish you with them. —Yours respectfully,
+HONOURED SIR,—I am sorry to tell you that Miss Cray died at my house a week ago, and was buried yesterday. She spoke of you several times during her last illness, and if you would like to hear any further particulars, and will call on me at the old address, I shall be most happy to furnish you with them. —Yours respectfully,
 MARY THOMPSON.
 
 When Mr. Braggett read this news, you might have knocked him over with a feather. It is not always true that a living dog is better than a dead lion. Some people gain considerably in the estimation of their friends by leaving this world, and Miss Charlotte Cray was one of them. Her persecution had ceased for ever, and her amiable weaknesses were alone held in remembrance.
 
-Mr. Braggett felt a positive relief in the knowledge that his dead friend and his wife would never now be brought in contact with each other; but at the same time he blamed himself more than was needful, perhaps, for not having seen nor communicated with Miss Cray for so long before her death. He came down to breakfast with a portentously grave face that morning, and
-imparted the sad intelligence to Mrs. Braggett with the air of an undertaker. Emily wondered, pitied, and sympathised, but the dead lady was no more to her than any other stranger; and she was surprised her husband looked so solemn over it all. Mr. Braggett, however, could not dismiss the subject easily from his mind. It haunted him during the business hours of the
-morning, and as soon as he could conveniently leave his office, he posted away to Hammersmith. The little house in which Miss Cray used to live looked just the same, both inside and outside: how strange it seemed that she should have flown away from it for ever! 
+Mr. Braggett felt a positive relief in the knowledge that his dead friend and his wife would never now be brought in contact with each other; but at the same time he blamed himself more than was needful, perhaps, for not having seen nor communicated with Miss Cray for so long before her death. He came down to breakfast with a portentously grave face that morning, and imparted the sad intelligence to Mrs. Braggett with the air of an undertaker. Emily wondered, pitied, and sympathised, but the dead lady was no more to her than any other stranger; and she was surprised her husband looked so solemn over it all. Mr. Braggett, however, could not dismiss the subject easily from his mind. It haunted him during the business hours of the morning, and as soon as he could conveniently leave his office, he posted away to Hammersmith. The little house in which Miss Cray used to live looked just the same, both inside and outside: how strange it seemed that she should have flown away from it for ever! 
 
 And here was her landlady, Mrs. Thompson, bobbing and curtseying to him in the same old black net cap with artificial flowers in it, and the same stuff gown she had worn since he first saw her, with her apron in her hand, it is true, ready to go to her eyes as soon as a reasonable opportunity occurred, but otherwise the same Mrs. Thompson as before. And yet she would
 never wait upon __her__ again.
+
+‘It was all so sudden, sir,’ she said, in answer to Mr. Braggett’s inquiries, ‘that there was no time to send for nobody.’
+
+‘But Miss Cray had my address.’
+
+‘Ah! perhaps so; but she was off her head, poor dear, and couldn’t think of nothing. But she remembered you, sir, to the last; for the very morning she died, she sprung up in bed and called out, “Sigismund! Sigismund!” as loud as ever she could, and she never spoke to anybody
+afterwards, not one word.’
+
+‘She left no message for me?’
+
+‘None, sir. I asked her the day before she went if I was to say nothing to you for her (knowing you was such friends), and all her answer was, “I wrote to him. He’s got my letter.”
+
+'So I thought, perhaps, you had heard, sir.’
+
+‘Not for some time past. It seems terribly sudden to me, not having heard even of her illness. Where is she buried?’
+
+‘Close by in the churchyard, sir. My little girl will go with you and show you the place, if you’d like to see it.’
+
+Mr. Braggett accepted her offer and left.
