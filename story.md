@@ -70,3 +70,16 @@ When he was standing by a heap of clods they called a grave, and had dismissed t
 This letter had made Mr. Braggett terribly angry at the time of reception. He had puffed and fumed, and cursed Miss Charlotte by all his gods for daring to threaten him. But he read it with different feelings now Miss Charlotte was down there, six feet beneath the ground he stood on, and he could feel only compassion for her frenzy, and resentment against himself for having excited it. As he travelled home from Hammersmith to Streatham, he was a very dejected publisher indeed.
 
 He did not tell Mrs. Braggett the reason of his melancholy, but it affected him to that degree that he could not go to office on the following day, but stayed at home instead, to be petted and waited upon by his pretty wife, which treatment resulted in a complete cure. The next morning, therefore, he started for London as briskly as ever, and arrived at office before his usual time. A clerk, deputed to receive all messages for his master, followed him behind the ground-glass doors, with a packet of letters.
+
+‘Mr. Van Ower was here yesterday, sir. He will let you have the copy before the end of the week, and Messrs. Hanleys’ foreman called on particular business, and will look in to-day at eleven. And Mr. Ellis came to ask if there was any answer to his letter yet; and Miss Cray called, sir; and that’s all.’
+
+‘Who did you say?’ cried Braggett.
+
+‘Miss Cray, sir. She waited for you above an hour, but I told her I thought you couldn’t
+mean to come into town at all, so she went.’
+
+‘Do you know what you’re talking about, Hewetson? You said Miss Cray!’
+
+‘And I meant it, sir—Miss Charlotte Cray. Burns spoke to her as well as I.’
+
+‘Good heavens!’ exclaimed Mr. Braggett, turning as white as a sheet. ‘Go at once and send Burns to me.’ Burns came.
