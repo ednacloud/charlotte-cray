@@ -62,3 +62,11 @@ afterwards, not one word.’
 ‘Close by in the churchyard, sir. My little girl will go with you and show you the place, if you’d like to see it.’
 
 Mr. Braggett accepted her offer and left.
+
+When he was standing by a heap of clods they called a grave, and had dismissed the child, he drew out Miss Cray’s last letter, which he carried in his pocket, and read it over.
+
+‘You tell me that I am not to call at your office again, except on business’ (so it ran), ‘nor to send letters to your private address, lest it should come to the knowledge of your wife, and create unpleasantness between you; but I shall call, and I shall write, until I have seen Mrs. Braggett, and, if you don’t take care, I will introduce myself to her and tell her the reason you have been afraid to do so.’
+
+This letter had made Mr. Braggett terribly angry at the time of reception. He had puffed and fumed, and cursed Miss Charlotte by all his gods for daring to threaten him. But he read it with different feelings now Miss Charlotte was down there, six feet beneath the ground he stood on, and he could feel only compassion for her frenzy, and resentment against himself for having excited it. As he travelled home from Hammersmith to Streatham, he was a very dejected publisher indeed.
+
+He did not tell Mrs. Braggett the reason of his melancholy, but it affected him to that degree that he could not go to office on the following day, but stayed at home instead, to be petted and waited upon by his pretty wife, which treatment resulted in a complete cure. The next morning, therefore, he started for London as briskly as ever, and arrived at office before his usual time. A clerk, deputed to receive all messages for his master, followed him behind the ground-glass doors, with a packet of letters.
